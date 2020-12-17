@@ -1,2 +1,0 @@
-# akusayangkamu
-Hai lagi apa?
